@@ -1,1 +1,0 @@
-# 2026-skool-clief-weekly-5-the-coach
